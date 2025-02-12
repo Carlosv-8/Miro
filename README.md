@@ -1,2 +1,4 @@
 # Miro
 entrega de wireframes ecommerce personal
+Carlos Vega
+https://miro.com/welcomeonboard/czN0UzhqVEl5cjl2VWY2aklXNE43dDFTV0NDKzBEcGVrRFdRTzR3eDQ0QzltOXJha3NqanpBRlJFNE9UaENpTHYzNHhlY1BNVjRjRFkvK0J1QklzOC9wVmlZdlRDcDJLMFZSOTVHcGtLTWk1NFBMVXBEUmcvRitrQUVzR3F6b2VhWWluRVAxeXRuUUgwWDl3Mk1qRGVRPT0hdjE=?share_link_id=512938938435
